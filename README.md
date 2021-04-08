@@ -36,9 +36,13 @@ Além disso, achei os diálogos preguiçosos, e mesmo o mangá deixando claro qu
 
 apx8,5/10
 
+
 1t = 9
+
 2t = 10
+
 3t = 8,5
+
 4t = 7
 
 
