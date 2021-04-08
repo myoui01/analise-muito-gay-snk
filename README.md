@@ -28,4 +28,18 @@ Acredito que a moral da história seja: ainda que sejamos todos iguais de raça,
 .
 .
 
-Final extremamente homossexual, todo o aprofundamento de que a vida não é um conto de fadas e que o ciclo de ódio sempre vai se reerguer foi enfiado no anus. Obrigada Isayama abre o portao daqui 40 minuto fdp
+Final extremamente homossexual, todo a narrativa construinda em cima da ideia de que o ciclo de ódio sempre vai se reerguer foi enfiada no anus. Obrigada Isayama abre o portao daqui 40 minuto fdp
+
+Maluco transformou o Eren em um Lelouch mal feito 
+Além disso, achei os diálogos preguiçosos, e mesmo o mangá deixando claro que a população foi praticamente dizimada, isso foi passado de modo que deu a entender que foi uma boa escolha do Eren pq o vagabundo ainda saiu como mártir, achei muito incoerente, sério
+
+
+apx8,5/10
+
+1t = 9
+2t = 10
+3t = 8,5
+4t = 7
+
+
+
