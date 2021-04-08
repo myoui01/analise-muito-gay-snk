@@ -37,12 +37,9 @@ Além disso, achei os diálogos preguiçosos, e mesmo o mangá deixando claro qu
 apx8,5/10
 
 
-1t = 9
-
+1t = 8,5
 2t = 10
-
-3t = 8,5
-
+3t = 9
 4t = 7
 
 
