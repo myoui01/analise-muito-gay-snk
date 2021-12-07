@@ -1,7 +1,6 @@
-# analise-muito-gay-snk
+# analise-snk
 
-Minha análise final de Snk alerta cringe 
-
+Minha análise final de snk alerta cringe 
 
 Se é que existe vilão nessa história, para mim seria a própria humanidade. Desde o início da trama as piores facetas do homem foram representadas, mas dando sempre holofotes ao egoísmo. Nosso comportamento instintivo de se ter como prioridade, mesmo que isso custe a vida do próximo, pois a nossa liberdade termina, quando a do outro começa. Para que existam nossos ideais, vontades pessoais, sentimentos, visão de mundo limitada, família, por de lado a própria estabilidade da sociedade, a liberdade coletiva e inexpugnável deve ser contida. Era isso que Eren, tomado pelo ódio e busca incessante pelo valor de ser livre, não aceitava; ceder de si próprio pelo bem maior, como ansiava o plano de Eutanásia de Zeke.
 
