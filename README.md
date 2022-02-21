@@ -21,16 +21,14 @@ Assim como no anime, estruturas de poder são mantidas, tendo como base determin
 E nós "seres humanos normais e impotentes", também colaboramos para a manutenção desse sistema. Nós sabemos que nosso computador é possivelmente fruto de trabalho escravo, nós sabemos que a carne que comemos é fruto de uma indústria suja, tal como a salada que ingerimos. Mas nós não nos importamos ou pensamos acerca disso. Nós financiamos isso tudo e no fim nos alienamos, provavelmente para correr da culpa. Porque essa bolha de comer a carne no prato sem se perguntar o processo pelo qual ela passou para estar lá, é mais confortável. Por outro lado, visando que a ignorância carregue seu significado literal, o governo (por hora, os governantes) não iria nos incentivar à algo que o prejudica, e nós, como sociedade, somos pequenos demais para pensar sozinhos. 
 
 
-Acredito que a moral da história seja: ainda que sejamos todos iguais de raça, não somos iguais de alma. Cada um tem sua própria vivência, que forma nossas pré-compreensões únicas a funcionar como meio de interpretar o mundo ao redor. É isso que faz com que a sociedade seja plural, havendo uma vasta variedade de visões e opiniões. No fim, a diversidade é, além da maior beleza da nossa existência, contrastada pelo egoísmo: meu pau no seu ouvido.
+Acredito que a moral da história seja: ainda que sejamos todos iguais de raça, não somos iguais de alma. Cada um tem sua própria vivência, que forma nossas pré-compreensões únicas a funcionar como meio de interpretar o mundo ao redor. É isso que faz com que a sociedade seja plural, havendo uma vasta variedade de visões e opiniões. No fim, a diversidade é, além da maior beleza da nossa existência, contrastada pelo egoísmo do ser humano na busca pela liberdade.
  
 .
 .
 .
 
-Final extremamente homossexual, toda a narrativa construída em cima da ideia de que o ciclo de ódio sempre vai se reerguer foi enfiada no anus. Isayama abre o portao daqui 40 minuto fdp
-
-Maluco transformou o Eren em um Lelouch mal feito 
-Além disso, achei os diálogos preguiçosos, e mesmo o mangá deixando claro que a população foi praticamente dizimada, isso foi passado de modo que deu a entender que foi uma boa escolha do Eren pq o vagabundo ainda saiu como mártir, achei muito incoerente, tô revoltada cadê meu final FODA com críticas sociais ISAYAMA CADE 
+Sobre o final: extremamente homossexual, toda a narrativa construída em cima da ideia de que o ciclo de ódio sempre vai se reerguer foi jogada no lixo. Isayama preguiçoso simplesmente transformou o Eren em um Lelouch mal feito 
+Além disso, achei os diálogos preguiçosos e algumas mortes forçadas, e mesmo o mangá deixando claro que a população foi praticamente dizimada, isso foi passado de modo que deu a entender que foi uma boa escolha do Eren, já que dentro da ficção suas ações foram "justificadas" e ele saiu como mártir, achei muito incoerente, tô revoltada cadê meu final FODA com críticas sociais ISAYAMA CADE 
 
 
 apx8,5/10
